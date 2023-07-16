@@ -22,7 +22,7 @@
     ________________________________________________________________________________________________________________________
     <br><br>
     <h3><b>Requests</b></h3>
-    <b>email</b>: scarletmusic at posteo.de
+    <b>email</b>: scarletmusic at posteo dot de
     <br><br>
     Feel free to reach out any time — I will get back to you as soon as possible.<br>
     Let me know about your project, your artistic vision for the material, deadlines and how much creative freedom I am granted with respect to editing the recordings.
